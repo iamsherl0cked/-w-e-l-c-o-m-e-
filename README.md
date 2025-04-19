@@ -32,3 +32,4 @@
 <p align="center">◇ $${\color{red}Attack \space \color{red}On\space\color{red}Titan}$$
 <p align="center">◇ $${\color{white}Epic \space \color{white}The\space\color{white}Musical}$$
 <p align="center">◇ $${\color{white}Naruto}$$
+<p align="center">◇ $${\color{white}Jujutsu \space \color{white}Kaisen}$$ 
