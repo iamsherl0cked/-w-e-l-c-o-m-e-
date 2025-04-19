@@ -6,3 +6,4 @@
 <p align="center">I'm an artist/writer and is a college graduate of Digital Graphics and Animation. I tend to procastinate alot sadly but I do try my best to draw and write some things as well. 
 <p align="center">My content is most entirely canon x oc and if you've got a problem with it and hate it, you are not welcome in my account but if you do love canon x oc like me, I would totally hype you up and support you if you have one however there's some limit and I shall be explaining it later.
 <p align="center"> ◇:*:◆:*:◇:*:◆
+![](
