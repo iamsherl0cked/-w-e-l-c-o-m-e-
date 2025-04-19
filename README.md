@@ -35,3 +35,6 @@
 <p align="center">◇ $${\color{white}Jujutsu \space \color{white}Kaisen}$$ 
 <p align="center">◇ $${\color{white}Dandadan}$$
 <p align="center">◇ $${\color{white}Demon \space \color{white}Slayer}$$ 
+<p align="center"> ◇:*:◆:*:◇:*:◆
+
+![](
