@@ -37,4 +37,6 @@
 <p align="center">◇ $${\color{white}Demon \space \color{white}Slayer}$$ 
 <p align="center"> ◇:*:◆:*:◇:*:◆
 
-![](
+![](fc7459c3b6b15d8325fc8e5e548e8f1f.gif)
+<p align="center"> That's it for now everyone!!
+<p align="center">
