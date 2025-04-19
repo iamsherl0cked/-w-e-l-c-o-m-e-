@@ -9,3 +9,4 @@
   
 ![](https://github.com/iamsherl0cked/-w-e-l-c-o-m-e-/blob/main/dbd6456c811cbbee0835a86d3b7ff597.gif)
 <p align="center"> 𝐁𝐄𝐅𝐎𝐑𝐄 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓𝐈𝐍𝐆 𝐖𝐈𝐓𝐇 𝐌𝐄 𝐎𝐍 𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍, 𝐈 𝐇𝐀𝐕𝐄 𝐀 𝐅𝐄𝐖 𝐓𝐇𝐈𝐍𝐆𝐒 𝐓𝐎 𝐑𝐄𝐂𝐎𝐍𝐒𝐈𝐃𝐄𝐑 𝐖𝐈𝐓𝐇 𝐘𝐎𝐔 𝐆𝐔𝐘𝐒
+<code style="color : red">Strictly do not steal or copy my skins or style cause I created all of my skins myself unless I put that it's a tut skin on the name</code>
