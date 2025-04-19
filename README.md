@@ -24,4 +24,11 @@
 <p align="center"> ◇:*:◆:*:◇:*:◆
   
 ![](3435f56f48340448450a86a2f8ff010c.gif)
-<p align="center">𝐇𝐄𝐑𝐄 𝐀𝐑𝐄 𝐌𝐘 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 (If the text is red, that means it's my most hyperfixated fandom)
+<p align="center">𝐇𝐄𝐑𝐄 𝐀𝐑𝐄 𝐒𝐎𝐌𝐄 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 𝐓𝐇𝐀𝐓 𝐈'𝐌 𝐈𝐍 (If the text is red, that means it's my most hyperfixated fandom)
+  
+<p align="center">◇ $${\color{red}Sherlock \space \color{red}(BBC)}$$ 
+<p align="center">◇ $${\color{red}Twisted \space \color{red}Wonderland}$$ 
+<p align="center">◇ $${\color{red}Marvel \space \color{red}(MCU)}$$   
+<p align="center">◇ $${\color{red}Attack \space \color{red}On\space\color{red}Titan}$$
+<p align="center">◇ $${\color{white}Epic \space \color{white}The\space\color{white}Musical}$$
+<p align="center">◇ $${\color{white}Naruto}$$
