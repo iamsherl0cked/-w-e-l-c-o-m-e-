@@ -5,7 +5,7 @@
 <p align="center"> "Hi, everypony!! I'm Mari and it seems like you have stopped by and checked my github account if you saw me on Ponytown roaming around or just chilling so I shall be introducing myself. 
 <p align="center">I'm an artist/writer and is a college graduate of Digital Graphics and Animation. I tend to procastinate alot sadly but I do try my best to draw and write some things as well. 
 <p align="center">My content is most entirely canon x oc and if you've got a problem with it and hate it, you are not welcome in my account but if you do love canon x oc like me, I would totally hype you up and support you if you have one however there's some limits and I shall be explaining it here as well.
-<p align=" center">I'm very introverted so I tend to not usually interact with anyone unless I know you. Complimenting my skins is a-okay to me and I can also reply to it when I can.
+<p align=" center">I'm very introverted so I tend to not usually interact with anyone unless I know you. Complimenting my skins is a-okay to me and I can also reply to it when I can. When I'm comfortable with you, I tend to be silly and chaotic but when it comes to serious topics, My demeanor changes alot.
 <p align="center"> ◇:*:◆:*:◇:*:◆
   
 ![](https://github.com/iamsherl0cked/-w-e-l-c-o-m-e-/blob/main/dbd6456c811cbbee0835a86d3b7ff597.gif)
@@ -24,7 +24,7 @@
 <p align="center"> ◇:*:◆:*:◇:*:◆
   
 ![](3435f56f48340448450a86a2f8ff010c.gif)
-<p align="center">𝐇𝐄𝐑𝐄 𝐀𝐑𝐄 𝐒𝐎𝐌𝐄 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 𝐓𝐇𝐀𝐓 𝐈'𝐌 𝐈𝐍 (If the text is red, that means it's my most hyperfixated fandom)
+<p align="center">𝐇𝐄𝐑𝐄 𝐀𝐑𝐄 𝐒𝐎𝐌𝐄 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 𝐓𝐇𝐀𝐓 𝐈'𝐌 𝐈𝐍 (If the text is $${\color{red}red}$$, that means it's my most hyperfixated fandom)
   
 <p align="center">◇ $${\color{red}Sherlock \space \color{red}(BBC)}$$ 
 <p align="center">◇ $${\color{red}Twisted \space \color{red}Wonderland}$$ 
