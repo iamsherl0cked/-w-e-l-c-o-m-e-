@@ -21,5 +21,4 @@
 <p align="center">◇ I will NOT TOLERATE HARASSMENT towards me or my friends and if you are trying to harass me or my friends, I'll block you immediately.
 <p align="center">◇ Do not interact with me if you are proshipper and just leave me alone.
 <p align="center">◇ I am a rareshipper and I prefer it more than popular ships. I also have canon x canon ships that I love so please respect my ships for I respect yours as well.
-<p align=" center">.•*•.•*•.•*•.•*•.•*•.•*•.
 <p align="center"> ◇:*:◆:*:◇:*:◆
