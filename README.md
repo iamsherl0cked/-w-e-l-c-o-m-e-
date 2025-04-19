@@ -33,3 +33,5 @@
 <p align="center">◇ $${\color{white}Epic \space \color{white}The\space\color{white}Musical}$$
 <p align="center">◇ $${\color{white}Naruto}$$
 <p align="center">◇ $${\color{white}Jujutsu \space \color{white}Kaisen}$$ 
+<p align="center">◇ $${\color{white}Dandadan}$$
+<p align="center">◇ $${\color{white}Demon \space \color{white}Slayer}$$ 
