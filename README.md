@@ -24,3 +24,4 @@
 <p align="center"> ◇:*:◆:*:◇:*:◆
   
 ![](3435f56f48340448450a86a2f8ff010c.gif)
+<p align="center">𝐇𝐄𝐑𝐄 𝐀𝐑𝐄 𝐌𝐘 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒 (If the text is red, that means it's my most hyperfixated fandom)
