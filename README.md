@@ -8,4 +8,4 @@
 <p align="center"> ◇:*:◆:*:◇:*:◆
   
 ![](https://github.com/iamsherl0cked/-w-e-l-c-o-m-e-/blob/main/dbd6456c811cbbee0835a86d3b7ff597.gif)
-<p align="center"> **Before interacting with me on Ponytown, I have a few things to reconsider with you guys**
+<p align="center"> 𝐁𝐄𝐅𝐎𝐑𝐄 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓𝐈𝐍𝐆 𝐖𝐈𝐓𝐇 𝐌𝐄 𝐎𝐍 𝐏𝐎𝐍𝐘𝐓𝐎𝐖𝐍, 𝐈 𝐇𝐀𝐕𝐄 𝐀 𝐅𝐄𝐖 𝐓𝐇𝐈𝐍𝐆𝐒 𝐓𝐎 𝐑𝐄𝐂𝐎𝐍𝐒𝐈𝐃𝐄𝐑 𝐖𝐈𝐓𝐇 𝐘𝐎𝐔 𝐆𝐔𝐘𝐒
