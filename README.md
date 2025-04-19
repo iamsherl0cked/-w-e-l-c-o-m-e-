@@ -16,7 +16,7 @@
 <p align="center">◇ I'm pretty sensitive so please make sure to interact with extreme caution to me.
 <p align="center">◇ I don't roleplay so please do not rp with me out of nowhere unless you are a friend of mine and I will have "SYS" or "RPDNI" on my ponies most entirely meaning, I don't wanna engage in a roleplay with you.
 <p align="center">◇ I tend to have anxiety attacks out of nowhere and I usually put "DNIUP", "IWEC", "DNIUF" if I do get some scenarios. 
-<p align="center">◇ If I have "AFK" on my name that means I'm away from my phone and is busy irl. When I have "SEMI-AFK" my replies tends to be late.
+<p align="center">◇ If I have "AFK" on my name that means I'm away from my phone and is busy irl or doing something else. When I have "SEMI-AFK" my replies tends to be late.
 <p align="center">◇ Trey Clover from Twisted Wonderland and Sherlock Holmes (BBC Version) are both my comfort characters and I'm a non-sharing yumejoshi to them meaning, I feel very uncomfortable and I will never consider interacting with you at all if you also have a romantic oc ship with them. I do respect your oc ship but please do not interact with me or talk about your oc ship to them with me for my sake and do respect my boundaries that's all I ask for and nothing elese.
 <p align="center">◇ I will NOT TOLERATE HARASSMENT towards me or my friends and if you are trying to harass me or my friends, I'll block you immediately.
 <p align="center">◇ Do not interact with me if you are proshipper and just leave me alone.
