@@ -39,4 +39,8 @@
 
 ![](fc7459c3b6b15d8325fc8e5e548e8f1f.gif)
 <p align="center"> That's it for now everyone!!
-<p align="center">
+<p align="center">✧༺♥༻✧
+
+![](45dff31fe00701aa732adb86bfd241fc.gif)
+<p align="center">$${\color{cyan}Have\space \color{cyan}A\space\color{cyan}Good\space\color{cyan}Day!}$$
+<p align="center">୨୧ Mari, signing out~
