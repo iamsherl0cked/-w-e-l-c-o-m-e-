@@ -28,7 +28,8 @@
   
 <p align="center">◇ $${\color{red}Sherlock \space \color{red}(BBC)}$$ 
 <p align="center">◇ $${\color{red}Twisted \space \color{red}Wonderland}$$ 
-<p align="center">◇ $${\color{red}Marvel \space \color{red}(MCU)}$$   
+<p align="center">◇ $${\color{red}Marvel \space \color{red}(MCU)}$$
+<p align="center">◇ $${\color{red}Forsaken}$$  
 <p align="center">◇ $${\color{red}Attack \space \color{red}On\space\color{red}Titan}$$
 <p align="center">◇ $${\color{white}Epic \space \color{white}The\space\color{white}Musical}$$
 <p align="center">◇ $${\color{white}Naruto}$$
